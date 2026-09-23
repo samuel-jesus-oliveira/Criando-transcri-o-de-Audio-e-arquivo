@@ -1,0 +1,1 @@
+# Criando-transcri-o-de-Audio-e-arquivo
